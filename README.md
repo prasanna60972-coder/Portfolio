@@ -1,0 +1,1 @@
+A personal website presenting my projects, skills, and achievements. It highlights my work experience, technical abilities, and creative projects in a clean, professional, and easy-to-navigate design.
